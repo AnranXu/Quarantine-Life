@@ -24,11 +24,11 @@
 
 先要走一大段机场路，大概走了五公里到市区。
 
-发现garden hotel，感觉住这里方便多了。![Narita (4)](.\photos\Narita (4).jpg)
+发现garden hotel，感觉住这里方便多了。![Narita (4)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(4).jpg)
 
 附近有一个成田山的寺庙，估计城市也是因此得名。
 
-![Narita (10)](.\photos\Narita (10).jpg)
+![Narita (10)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(10).jpg)
 
 ![Narita (11)](.\photos\Narita (11).jpg)
 
