@@ -30,26 +30,30 @@
 
 ![Narita (10)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(10).jpg)
 
-![Narita (11)](.\photos\Narita (11).jpg)
+![Narita (11)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(11).jpg)
 
-![Narita (16)](.\photos\Narita (16).jpg)![Narita (12)](.\photos\Narita (17).jpg)
+![Narita (16)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(16).jpg)
 
-![Narita (19)](.\photos\Narita (19).jpg)
+![Narita (12)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(12).jpg)
+
+![Narita (19)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(19).jpg)
 
 一路上发现了不少店铺。
 
-![Narita (28)](.\photos\Narita (28).jpg)![Narita (8)](.\photos\Narita (8).jpg)
+![Narita (28)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(28).jpg)
 
-![Narita (30)](.\photos\Narita (30).jpg)
+![Narita (8)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(8).jpg)
+
+![Narita (30)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(30).jpg)
 
 之后发现了两个大超市，一个七点开一个九点开，买了不少吃的。
 
-![Narita (23)](.\photos\Narita (23).jpg)
+![Narita (23)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(23).jpg)
 
-![Narita (33)](.\photos\Narita (33).jpg)
+![Narita (33)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(33).jpg)
 
-![Narita (34)](.\photos\Narita (34).jpg)
+![Narita (34)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(34).jpg)
 
-![Narita (35)](.\photos\Narita (35).jpg)
+![Narita (35)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(35).jpg)
 
 更多照片可以直接看文件夹
