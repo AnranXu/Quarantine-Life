@@ -8,7 +8,8 @@
 
 晚上放下行李便吃了楼下的自助餐，晚餐是3300含税。
 
-
+![hotel 1](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(1).jpg)
+![hotel 2](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(2).jpg)
 
 ## 4.7
 
