@@ -1,8 +1,7 @@
 # Quarantine-Life (Garden)
 
-<video src="https://github.com/AnranXu/Quarantine-Life/blob/main/garden/garden%20(1).mp4"></video>
 
-<video src="https://github.com/AnranXu/Quarantine-Life/blob/main/garden/garden%20(2).mp4"></video>
+https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-a4a6-4fbe0e71923f.mp4
 
 ![garden](https://github.com/AnranXu/Quarantine-Life/blob/main/garden/garden.jpg)
 
