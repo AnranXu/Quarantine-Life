@@ -67,4 +67,7 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 
 ![Narita (35)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(35).jpg)
 
+中午饭吃的门口100m的家庭餐厅。有750和850两档的日替わり。我这是750的。
+![hotel 3](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(3).jpg)
+
 更多照片可以直接看文件夹
