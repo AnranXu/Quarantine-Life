@@ -1,6 +1,8 @@
 # Quarantine-Life (Garden)
 
-
+更多请看
+链接：https://pan.baidu.com/s/1oVtOEgjG8cFShQS2KOnKqQ 
+提取码：6666 
 https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-a4a6-4fbe0e71923f.mp4
 
 ![garden](https://github.com/AnranXu/Quarantine-Life/blob/main/garden/garden.jpg)
