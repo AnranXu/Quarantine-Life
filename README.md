@@ -1,10 +1,10 @@
 # Quarantine-Life (Garden)
 
-<video src="D:\Quarantine-Life\garden (1).mp4"></video>
+<video src="https://github.com/AnranXu/Quarantine-Life/blob/main/garden/garden%20(1).mp4"></video>
 
-<video src="D:\Quarantine-Life\garden (2).mp4"></video>
+<video src="https://github.com/AnranXu/Quarantine-Life/blob/main/garden/garden%20(2).mp4"></video>
 
-![garden](D:\Quarantine-Life\garden.jpg)
+![garden](https://github.com/AnranXu/Quarantine-Life/blob/main/garden/garden.jpg)
 
 # Quarantine-Life (Mystays)
 
