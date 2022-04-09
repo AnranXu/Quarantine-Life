@@ -72,7 +72,7 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 
 ## 4.9
 早上继续晨练去成田市区（村中心）。
-上次回来才发现在成田寺后面还有个成田山公园，今天便和Liさん再次探索。
+上次回来才发现在成田寺后面还有个成田山公园，今天便再次探索。
 寺庙与公园遵循东洋与西洋两种风格，切换之间却能感到和谐。
 ![Narita (36)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(36).jpg)
 
