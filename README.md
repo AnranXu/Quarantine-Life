@@ -80,6 +80,7 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 
 ![Narita (38)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(38).jpg)
 
+回程正好去AEON 超市去购物，真是比便利店强太多了。
 ![Narita (39)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(39).jpg)
 
 更多照片可以直接看文件夹
