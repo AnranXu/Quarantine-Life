@@ -83,4 +83,8 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 回程正好去AEON 超市去购物，真是比便利店强太多了。
 ![Narita (39)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(39).jpg)
 
+## 4.10
+中午全家+AEON买的速食米饭和拌饭料弄了一顿。
+![hotel 4](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(4).jpg)
+
 更多照片可以直接看文件夹
