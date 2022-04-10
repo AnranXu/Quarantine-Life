@@ -87,4 +87,12 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 中午全家+AEON买的速食米饭和拌饭料弄了一顿。
 ![hotel 4](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(4).JPG)
 
+晚上发现成田吃饭一条街，好多餐馆座无虚席。我找了个没人的食其家吃了。隔离期间，食其家都成了珍馐了。
+![Narita (40)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(40).jpg)
+
+![Narita (41)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(41).jpg)
+
+在AEON旁边发现世嘉游戏厅。
+![Narita (42)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(42).jpg)
+
 更多照片可以直接看文件夹
