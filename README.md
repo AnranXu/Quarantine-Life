@@ -85,6 +85,6 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 
 ## 4.10
 中午全家+AEON买的速食米饭和拌饭料弄了一顿。
-![hotel 4](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(4).jpg)
+![hotel 4](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(4).JPG)
 
 更多照片可以直接看文件夹
