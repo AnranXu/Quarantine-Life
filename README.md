@@ -117,22 +117,22 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 ![hotel 6](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(6).jpg)
 
 下午逛了逛成田山公园。上次来的过早，门口的店家都还没开门，这次来的时候都开着。不过也仅仅是正常的日本商店街罢了，还是分享些园内的景色。
-![Narita (47)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(47).jpg)
+![Narita (47)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(47).JPG)
 
-![Narita (48)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(48).jpg)
+![Narita (48)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(48).JPG)
 
-![Narita (49)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(49).jpg)
+![Narita (49)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(49).JPG)
 
-![Narita (50)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(50).jpg)
+![Narita (50)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(50).JPG)
 
-![Narita (51)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(51).jpg)
+![Narita (51)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(51).JPG)
 
-![Narita (52)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(52).jpg)
+![Narita (52)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(52).JPG)
 
-![Narita (53)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(53).jpg)
+![Narita (53)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(53).JPG)
 
-![Narita (54)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(54).jpg)
+![Narita (54)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(54).JPG)
 
-![Narita (55)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(55).jpg)
+![Narita (55)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(55).JPG)
 
 更多照片可以直接看文件夹
