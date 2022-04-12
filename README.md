@@ -71,6 +71,7 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 ![hotel 3](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(3).jpg)
 
 ## 4.9
+
 早上继续晨练去成田市区（村中心）。
 上次回来才发现在成田寺后面还有个成田山公园，今天便再次探索。
 寺庙与公园遵循东洋与西洋两种风格，切换之间却能感到和谐。
@@ -84,6 +85,7 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 ![Narita (39)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(39).jpg)
 
 ## 4.10
+
 中午全家+AEON买的速食米饭和拌饭料弄了一顿。
 ![hotel 4](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(4).JPG)
 
@@ -96,6 +98,7 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 ![Narita (42)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(42).jpg)
 
 ## 4.11
+
 中午吃的是便利店一套。
 ![hotel 5](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Hotel%20(5).jpg)
 
@@ -107,4 +110,29 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 ![Narita (46)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(46).jpg)
 
 ![Narita (43)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(43).jpg)
+
+## 4.12
+
+今天中午吃的スシロー特上セット寿司。
+![hotel 6](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(6).jpg)
+
+下午逛了逛成田山公园。上次来的过早，门口的店家都还没开门，这次来的时候都开着。不过也仅仅是正常的日本商店街罢了，还是分享些园内的景色。
+![Narita (47)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(47).jpg)
+
+![Narita (48)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(48).jpg)
+
+![Narita (49)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(49).jpg)
+
+![Narita (50)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(50).jpg)
+
+![Narita (51)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(51).jpg)
+
+![Narita (52)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(52).jpg)
+
+![Narita (53)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(53).jpg)
+
+![Narita (54)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(54).jpg)
+
+![Narita (55)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(55).jpg)
+
 更多照片可以直接看文件夹
