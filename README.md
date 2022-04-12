@@ -121,8 +121,6 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 
 ![Narita (48)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(48).JPG)
 
-![Narita (49)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(49).JPG)
-
 ![Narita (50)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(50).JPG)
 
 ![Narita (51)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(51).JPG)
