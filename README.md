@@ -97,7 +97,7 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 
 ## 4.11
 中午吃的是便利店一套。
-![hotel 5](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/hotel%20(5).jpg)
+![hotel 5](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Hotel%20(5).jpg)
 
 晚上去逛了另一个AEON，感觉比之前去的地方还繁华，晚上九点人都很多。
 ![Narita (44)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(44).jpg)
