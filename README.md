@@ -133,4 +133,8 @@ https://user-images.githubusercontent.com/24409860/162341525-62317caa-75d5-4f70-
 
 ![Narita (55)](https://github.com/AnranXu/Quarantine-Life/blob/main/photos/Narita%20(55).JPG)
 
+## 4.13
+
+今天是隔离的最后一天，开始收拾东西，准备明天出发。
+我是飞猪上订的送到东京市区。不过看车型都比较奇葩，比如准乘7人只能放三个箱子，如果大家要订建议看好了。
 更多照片可以直接看文件夹
